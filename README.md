@@ -33,4 +33,4 @@ Acredito que a inteligência artificial ganha valor quando deixa de ser apenas u
 
 Gosto de experimentar, construir, testar e evoluir soluções, combinando pensamento analítico, visão de negócio e tecnologia.
 
-**Meu objetivo é transformar IA em soluções úteis, funcionais e com impacto mensurável.**
+**Meu objetivo é transformar IA em soluções úteis, funcionais e com impacto mensurável!**
